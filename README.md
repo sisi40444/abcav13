@@ -20,4 +20,4 @@
 结语  
 无论是在线欣赏还是下载保存，日本AV平台都能提供极致体验。只需选择合适入口，精彩影片尽在掌控之中。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/sisi40444/abcav13 )</span>
